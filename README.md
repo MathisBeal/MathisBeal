@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MathisBeal
-- 👀 I’m interested in Coding, Animes, Mangas, Videogames
+- 👀 I’m interested in Coding, Mangas, Videogames
 - 🌱 I’m currently learning some things about coding
 - 💞️ I’m looking to collaborate on some personal projects
 - 📫 How to reach me ...
